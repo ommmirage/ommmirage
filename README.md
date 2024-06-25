@@ -1,1 +1,1 @@
-![cv](./MiroshnichenkoSergey.png)
+
